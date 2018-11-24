@@ -1,1 +1,1 @@
-Whaat? You already know what a Moo-point is ! If not, this place is not for you.
+Moo-Point? You already know what it is ! If not, this place is not for you.
