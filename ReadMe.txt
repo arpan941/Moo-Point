@@ -1,1 +1,1 @@
-Go work, you are not getting an explanation for Moo-point :P
+Whaat? You already know what a Moo-point is ! If not, this place is not for you.
